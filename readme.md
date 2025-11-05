@@ -4,4 +4,4 @@ SALVE
 
 bem-vindos ao meu repositório do GitHub.
 
-![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQOOEqvnjr8gereNQA9XAL0uuIkAg-mAB5Kcw&s)
+![](https://i0.wp.com/www.rapdab.com.br/wp-content/uploads/2020/08/NLE-CHOPPA.jpg?fit=1200%2C750&ssl=1)
