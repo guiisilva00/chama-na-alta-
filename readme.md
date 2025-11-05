@@ -4,4 +4,4 @@ SALVE
 
 bem-vindos ao meu repositório do GitHub.
 
-![](https://miro.medium.com/v2/resize:fit:1400/0*erW1UzTe5JHcaJ4C)
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQOOEqvnjr8gereNQA9XAL0uuIkAg-mAB5Kcw&s)
